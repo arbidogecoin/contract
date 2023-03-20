@@ -25,6 +25,7 @@ SOCIAL LINKS :
 TWITTER : https://twitter.com/arbdogecoin
 TELEGRAM : https://t.me/Arbidogecoin
 Website : https://arbidoge.com/
+MEDIUM : https://medium.com/@arbidogecoin
 
 100% RUN BY COMMUNITY AND OWNED BY COMMUNITY !
 
